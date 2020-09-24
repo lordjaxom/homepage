@@ -1,0 +1,2 @@
+Most of my articles will be written in English, because this blog mainly aims at a group of people who use and work with english terms on a daily basis anyway. But sometimes I will share a personal experience or funny thought in German, too. Don't get me wrong, I like the English language very much (its puntential is enormous), but I think humor is a great lot transmitted through the language it is spoken with. And since I live in Germany, most of my daily humor is German.
+
